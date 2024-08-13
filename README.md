@@ -1,4 +1,4 @@
 ## Hi there 👋
 
-<img src="https://github.com/TatianaOkhremenko/TatianaOkhremenko/commit/6cc2e0586238a47a28ad3b214faab0ea4364c768">
+<img src="https://github.com/TatianaOkhremenko/TatianaOkhremenko/blob/main/00_11.jpg">
 
